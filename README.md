@@ -8,5 +8,5 @@ Check it out
 Wow I suuuccckkkk at this lol
 <p/>
 <img src="/2018_Holland_Courtney_CityCreeka-3559.jpg" alt="court photoshoot1">
-<p/0
+<p/>
 
